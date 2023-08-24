@@ -8,8 +8,7 @@
         Selamat datang untuk teman-teman yang sampai di chapter 3 ini. Untuk menjadi the next talent digital kita perlu belajar dan terus mengexplore hal-hal baru. Tetep dijaga semangat dan rasa ingin tahunya. 🤙
 
 ## Ceritakan dong Motivasi teman-teman join dengan kelas ini
-> Saya bergabung dengan kelas ini karena  Ber-
-Andai aku Pasha Ungu
+Saya bergabung dengan kelas ini karena  Ber-Andai aku Pasha Ungu
 Semua wanita kan memburuku
 Bila aku Ariel Peterpan
 Kau yakin ngefans karena gua keren
@@ -46,5 +45,6 @@ Ku hanyalah orang yang ingin dicintai
 
 
 
+
 ## Lalu harapan teman-teman miliki
-> Harapan saya selama kelas ini saya bisa memberangkatkan kedua orang tua saya untuk pergi haji
+Harapan saya selama kelas ini saya bisa memberangkatkan kedua orang tua saya untuk pergi haji
